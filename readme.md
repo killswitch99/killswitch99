@@ -33,6 +33,4 @@
 
 > Only constant is change - Techlead
 > <br />
-> All code is garbage - Techlead
-> <br />
 > How long are you going to wait before you demand the best for yourself? - Epictetus
