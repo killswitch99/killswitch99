@@ -2,7 +2,7 @@
 
 - 🌱 I’m currently learning everything 🤣
 - 👯 I’m looking to collaborate with others
-- 🥅 2021 Goals: Make more fun projects
+- 🥅 2022 Goals: Make more fun projects
 - ⚡ Fun fact: NA
 
 <br />
