@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning everything 🤣
 - 👯 I’m looking to collaborate with others
 - 🥅 2024 Goals: Beat chatgpt
-- ⚡ Fun fact: NA
+- ⚡ Fun fact: TBD
 
 ---
 
